@@ -1,1 +1,2 @@
-# the-water-magician
+# The Water Magician
+Après s'être réincarné dans le monde de Phi, Ryô découvre qu'il maîtrise une magie lui permettant de contrôler l'eau à sa convenance. Il est également le détenteur d'une compétence qui lui confère la jeunesse éternelle. Fort de cela, il décide de vivre une vie oisive, mais le monde de Phi n'est pas propice à la villégiature.
